@@ -57,3 +57,9 @@ Nhyira Fashola
 🎓 Computer Engineering Student — KNUST
 📚 Passionate about learning and building practical web solutions.
 
+---
+
+
+🌱 “Small progress each week adds up to big results.”
+— Nhyira Fashola
+
